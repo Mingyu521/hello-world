@@ -1,2 +1,3 @@
 # hello-world
 The start of my coding adventure....
+I want to learn how to program so I can have a steady job with benefits.  I want to be able to own nice things and increase my standard of living. 
